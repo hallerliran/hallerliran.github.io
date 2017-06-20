@@ -1,0 +1,51 @@
+{\rtf1\ansi\ansicpg1252\cocoartf1504\cocoasubrtf830
+{\fonttbl\f0\fswiss\fcharset0 Helvetica;\f1\fnil\fcharset0 LucidaGrande;}
+{\colortbl;\red255\green255\blue255;}
+{\*\expandedcolortbl;;}
+\margl1440\margr1440\vieww18140\viewh13680\viewkind0
+\pard\tx720\tx1440\tx2160\tx2880\tx3600\tx4320\tx5040\tx5760\tx6480\tx7200\tx7920\tx8640\pardirnatural\partightenfactor0
+
+\f0\fs24 \cf0 ---\
+layout: post\
+title: Day 10 Canyonlands to Torrey\
+---\
+\
+Today was a long day (which I guess isn\'92t so different from other other days). Last night in our Moab campground we sat around pretty late with our neighbors - a gay couple from Santa Fe. We traded beers (they gave us one called Polygamy Porter brewed in Salt Lake). They were really nice and told us all about Santa Fe and about their tiny little Casita trailer that they have been towing around the country. Anyway, Liran and I stayed up until way too late and so we got a late start this morning.\
+\
+To add to our sleeping woes (I use that term lightly, I realize I\'92m on vacation) Raz had a nightmare last night. She woke up crying and saying \'93
+\f1 \uc0\u1499 \u1500 \u1489 
+\f0  
+\f1 \uc0\u1504 \u1489 \u1495 
+\f0  
+\f1 \uc0\u1506 \u1500 \u1497 \'94 and refused to go back to sleep. So I slept with her on the dinette for most of the night, and woke up pretty grumpy. Not a strong start to the day.
+\f0 \
+\
+After yesterday\'92s adventure on the Potash trail in Canyonlands, we were excited to see the park from up above. We left the campground at around 10AM, by which time it was super hot, and drove up to Dead Horse State Park. This state park is on a mesa which connects to the \'91mainland\'92 with a very narrow bit of land. Legend has it that cowboys used to use this mesa as natural corral for wild mustangs, since it was easy to block off all access. One day, for no known reason, they took the mustangs they wanted but then abandoned the rest of the horses corralled on the mesa with no source of water. Hence the name of the park. Pretty grim.\
+\
+We spent time at the visitor\'92s center - Raz was enthralled by the stuffed bighorn sheep and Liran by the view, so by the time we were ready to go to the next viewpoint it was time for lunch. Of course, even though Canyonlands is a less visited park, like everything in Utah right now, it was packed. Finding a lunch spot was frustrating. We finally found a parking spot at the furthest viewpoint, by which time Raz was pissed. We ate, and then decided to go see the viewpoint. Turns out it wasn\'92t a viewpoint but a hike, and it was too hot to do anything resembling a hike. So we got back in the car and drove to a few other viewpoints. We had grand plans of doing a short hike to Mesa arch, but everything was so hot, and since we had seen the \'93real\'94 Canyonlands yesterday on our adventure, and we felt pretty satiated by canyon views, and after the spectacular Delicate Arch yesterday, we decided to pass. So Canyonlands Day 2 was a little disappointing.\
+\
+From Canyonlands we started heading north and then west to Capitol Reef. The drive went through very remote countryside, and the view started to change. There was much more green, and then suddenly we were surrounded by gray mounds and stones jutting out of the ground (sorry for the bad description - I need to brush up on my geology). As we got closer to Capitol Reef, the scenery began to get much more pastoral, with homesteads and pastures, horses and tractors.\
+\
+Our aim was to stay in Fruita, a historical town founded by Mormon pioneers inside Capitol Reef National Park. It\'92s a first-come first-served site, and though it usually fills up early in the summer, we thought we would try to get a spot. The National Park Service maintains 3000 fruit trees in the park, planted by the pioneers, and the campsite is right between multiple orchards. There is also a picnic area nearby where deer come to graze and hang out. \
+\
+The campsite is dry and was completely full when we got there. As Liran drove around, I took Raz out of the car and walked around. We ran into a guy who was biking from Michigan to Portland, Oregon. Since he had no car, he offered us to stay with him at his site. We were so grateful that we offered to pay for the site.\
+\
+While Liran went to go fill up our water tank, I hung out with the bike guy and Raz explored the grass. After Liran finished filling up the tank he came back to park. As he\'92s backing into the slot, two campsite hosts come up to him. You can immediately tell that they love rules. They asked the bike guy if we asked him to stay with him and if he knows us. He says that he doesn\'92t know us and that we asked and that he\'92s okay with it. They immediate came up to Liran and told him that he has to leave. Site sharing isn\'92t allowed. Note that I\'92m with Raz, with a poopy diaper, and have been talking to bike guy for about an hour, getting to know him. Isn\'92t that similar to what happened to the Virgin Mary? I remember something about there not being enough room at the inn. They must not be taking this whole Mormon thing too seriously.\
+\
+At this point it\'92s 7PM and we are all exhausted. We have spent most of the day in the car, eating graham crackers, Bamba, and Bisli (which Raz calls 
+\f1 \uc0\u1502 \u1508 \u1493 \u1494 \u1512 
+\f0  for some unknown reason). We keep driving on Highway 24 until we reach the town of Torrey. We pull into the first RV campsite we see. It looks nice, with grass and a pasture. The smiling Mormon woman at the front desk then gives us our next bit of bad news. The town of Torrey has a water problem as of three days ago, and all water is contaminated and must be boiled. She said they have been treating their water, have really low water pressure, and that although she\'92s been drinking the water, she has to advise us not to. So shit.\
+\
+We leave that RV site and decide to keep driving. Apparently there is a big RV site at the end of town that has its own well and doesn\'92t have this problem. As we\'92re driving we see another RV site that looks nice, so we decide maybe they are spared this issue. We pull in, and it\'92s a new age couple that just bough the place in January. They are super nice, and say that since they are higher up they don\'92t have the water pressure problem and that their contamination problem isn\'92t as bad and that they think that this water contamination thing is overblown. Luckily though, we had filled up water in Fruita, so we should be good. We decide that enough is enough and that we\'92ll stay here at SandCreek RV camp.\
+\
+We pulled in, got a site, and Raz explored the campground. The sprinklers were on (fun) and there was a garden and grass. After a shower (indoor this time), we had dinner outside and Raz went to bed. When I was getting her ready for bed, she looked at her diaper and said \'93
+\f1 \uc0\u1494 \u1492 
+\f0  
+\f1 \uc0\u1499 \u1502 \u1493  \u1489 \u1512 \u1504 \u1491 \u1493 \u1503 \'94. We had changed brands to Pampers (no space for Costco size packets in our trailer), and apparently Brandon from Trixy has the same brand. Raz, why do you know this?\
+\
+As Raz on on the bed waiting for me to grab her PJs, she found some socks on the bed (clean!). She put them on her hands and started singing \uc0\u1524 \u1500 \u1505 \u1489 \u1514 \u1488  \u1489 \u1512 \u1493 \u1493 \u1494 \u1497 \u1501 \u1524  as though she didn\'92t have neglectful parents keeping her up until 9PM. A happy, silly kid. She is definitely an actor - at one point today she was crying, and Liran could tell it was about nothing, so he teased her. She gave him this look, trying so hard to suppress a smile and to look sad, but then burst out laughing. \
+\
+Raz\'92s memory keeps surprising us. As I was giving Raz a shower, I explained to her I was going to use conditioner on her hair because it\'92s long like Ima\'92s and Doda Adi\'92s and it\'92s very dry in the desert. She was a trooper and let me brush it through her tangles and she put her head back and closed her eyes so it wouldn\'92t burn. I told her that the shampoo came from Israel from our friends Tirtza and Eli. I told her they have a garden full of sculptures. She then told me that Tirtza has cats, but they don\'92t like to be pet. Granted we were in Israel in April, but the biased mother in me still thinks that\'92s pretty impressive for a 28 month old. 
+\f0 \
+\
+Right now I\'92m sitting by the campfire, looking at the stars, and listening to our strange neighbors that just pulled in. 5 people in a tiny car wearing weird clothes with a screaming child speaking a Slavic language. Time to go to bed. }
