@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Day 11 Torrey to Escalante National Monument
+title: Day 12 Torrey to Escalante National Monument
 ---
 
 We woke up today in Torrey, brushed our teeth with bottled water, and got ready to head West towards Escalante. As we were getting ready to leave, Raz was entertaining herself with a shover and pail. She had a bug in her pail and was playing around with it. I told her it was okay to play with it, but not to touch it because we didn't know what kind of bug it was. The second time I reminded her she said "אמא, לכי מפה. אני כבר לא תינוק״.
