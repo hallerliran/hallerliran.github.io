@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Day 13 Escalante National Monumnet
+title: Day 13 Escalante National Monument
 ---
 
 We woke up today in Escalante Petrified Forest State Park. We had intended to do the Lower Calf Creek hike, but were so exhausted from the heat and ash the day before (and weren't sure how bad the ash would be today), that we decided to skip it and head westwards on Hwy 12. Since we left so early, we arrived at Cannonville at around 8:30AM. Cannonville is a tiny town, but it has a decent visitor's center. We went in and the lady basically told us that the weather and the ash is only going to get worse. We're heading in the direction of the fire, so too bad.
