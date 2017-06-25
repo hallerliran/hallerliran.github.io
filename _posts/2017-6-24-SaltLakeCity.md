@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Day 15 Salt City
+title: Day 15 Salt Lake City
 ---
 
 Today we visited the Mormons. We left the Richfield KOA after a leisurely breakfast and playground time. At the playground, Raz sat down on the bench next to me and said ״אני אמא. את ילדה. לשחק״. That's a big theme of her's right now. She's the mommy and I'm the baby/girl/sister. Aba also gets to be the sister sometimes.
