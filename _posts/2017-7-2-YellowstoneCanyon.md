@@ -1,0 +1,30 @@
+---
+layout: post
+title: Day 23 Canyon Country, Yellowstone
+---
+
+Today we decided to explore Canyon Country, which includes the Grand Canyon of Yellowstone. We woke up at Fishing Bridge and got ready quietly while Raz slept. We then put her in the car (still in pajamas) and drove to the visitors' center to drop of the RV.  We had to leave early because we were leaving from the Artist's Point parking lot, which gets super packed very early.
+
+When I was getting Raz ready in the morning she was asking me a question about something on her shirt, I told her I couldn't see what she was talking about so she told me "פה. איפה שאני מצביעה!". Of course, sorry. Raz is so happy to have Daniel here - she is constantly trying to share with him (even when he isn't interested). She constantly is bringing him his water bottle to drink, she tries to share her rice cake with him, and wants to show and explain everything she is doing to him.
+
+We decided to do a hike along the South Rim of the canyon, and then cut through meadows to two back country lakes. The hike was supposed to start at Uncle Tom's trailhead, but unfortunately the parking lot was closed for construction. A ranger at Artist's Point told us that we wouldn't be able to do the full loop because of the construction. We decided to try anyway. But since we were sure we would be successful, we did the loop backwards - going from Artistt's Point along South Rim trail to Uncle Tom's and then through the meadow to Clear Lake and Lily Lake and then back to Artist's Point.
+
+The hike itself was beautiful and very varied. From Artist's Point to Uncle Tom's we walked along the canyon rim, with waterfall and river views. We then cut through some back country to get past the closed trail, and crossed the road to start climbing through some rolling meadows. There were abundant wildflowers in purple, yellow, and white. As we walked, Liran spotted what he and Adi decided was a fox. Good thing Adi got a good picture of it, because David later identified it as a coyote. We also saw a squirrel (one of millions), and Raz said ״אני לא רוצה להתקרב אליו כי יש לו ציפורנים ארוכות״. 
+
+After crossing the meadows, the trail started climbing a barren hillside with sparse trees and brought us to a bubbling mud pot and a smoking fumarole (that was growling). We had to carefully walk past it, but be sure to stay on the trail since the ground was probably unstable. Raz said ״אני לא אוהבת דברים כאלה זה מסריח״. We then re-entered the woods and found ourselves at Clear Lake, a beautiful clear blue backcountry lake that is unfortunately too acidic to swim in. We stopped there for a short snack. I asked Raz to come drink some water, her response was "עוד רגע. כבר". In fact, that is now her favorite response to me when I ask her to do something.
+
+The trail then continued and took us to Lily Lake, which was covered in water lillies with bright yellow flowers. From there the trail entered the forest and started to climb. We then walked a little bit towards Point Sublime, changed our mind when we realized the trailhead was underestimating the mileage, and then headed back to Artist's Point for a stunning view of the waterfall. There were so many mosquitos on the hike, so I slathered Raz in bug spray. Every time that I put it on her, she tells me תודה. It's so cute and reassuring. She also picks up sticks and pretends to spray us all with bug spray. 
+
+After the hike we were all hungry and tired, so we went to the Canyon Village area and ate at the cafeteria. Wasn't as bad as it sounds, but was super busy. We are all surprised by the number of Chinese tourists. There are busloads at every scenic point and visitor's center. We had no idea Yellowstone was such a destination for them.
+
+Raz has adopted a little flashlight as her camera, and is constantly pretentending to take pictures with it. I attached it to a cheap Walmart necklace for her, and so she pretends she's ״כמו אבא״ with his SLR camera. She holds up the flaslight to her eye and points it at things and tells me what she is photographing. At one point she told me that she is "לצלם משהו יפה" and then proceeded to tell me she was taking a picture of a pickup truck (which she thought was beautiful).
+
+From there we continued on to Mud Pots, which is another thermal area. There is a short 0.6 mile boardwalk that takes you to different mud puts and lakes. Some of them are bubbling violently because of all of the gasses underneath that are bubbling up. One of the pool actually had mini-waves in it because it was so intense (and hot). I don't think Mud Pots is as popular as some of the other regions, but it was really impressive and different.
+
+Raz slept the whole time we were at Mud Pots, so Liran and I took turns to go see it. When she woke up she refused to talk to Liran and barely talked to me. Then after a period of silence she said ״אני רוצה לפגוש את דנדוש בספסל״. She loves hanging out with him.
+
+After Mud Pots we of course kept going, and decided to do a short walk along the North Rim of the canyon. This walk runs parallel to the road, but instead of driving and parking at different vistas we just walked. The kids were out of the carriers, and Liran, Adi and I walked along with them, keeping them as far from the edge as possible and convincing them to hold our hands. Once we got to the last viewpoint, Liran took a quick jog back and brought the car so the kids wouldn't have to walk all the way back.
+
+Tonight we are sleeping at Canyon Campground, since there was no room at Fishing Bridge. At first we thought it would be annoying, but turns out it was a serendipidous turn of events. This campground is much much nicer, with large private areas, picnic tables, and firepits. Since our spot is a pull through spot, Adi and David are parked right behind us. We are hoping that no ranger comes at night to kick them out. 
+
+Tomorrow we will do another hike along the Yellowstone River and then will try out some wildlife watching at Lamar Valley. Maybe we will FINALLY see a bear. Unlikely.
