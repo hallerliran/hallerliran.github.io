@@ -28,3 +28,5 @@ After Mud Pots we of course kept going, and decided to do a short walk along the
 Tonight we are sleeping at Canyon Campground, since there was no room at Fishing Bridge. At first we thought it would be annoying, but turns out it was a serendipidous turn of events. This campground is much much nicer, with large private areas, picnic tables, and firepits. Since our spot is a pull through spot, Adi and David are parked right behind us. We are hoping that no ranger comes at night to kick them out. 
 
 Tomorrow we will do another hike along the Yellowstone River and then will try out some wildlife watching at Lamar Valley. Maybe we will FINALLY see a bear. Unlikely.
+
+Oh and one last Raz story. Liran and I are having so much fun just being with her and we constantly talk about how amazing she is an how in love we are with her. She has recently started telling us "Ima, I'm so happy to be with you". And then giving us hugs and kisses on our heads, foreheads, cheeks, ears. So much love!!
