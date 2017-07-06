@@ -20,3 +20,5 @@ Funny Raz moment - Yesterday in the RV, Raz kept playing with a knob that I told
 Raz keeps mentioning Trixy and her friends at daycare. She was playing with a toy ambulance, and so reminded us that "It's like Brandons". And then she keeps telling us "I'm the oldest". I asked her why is she the oldest and so she said "Like Zinnia. Zinnia is the oldest".
 
 Raz today took a shower in the outdoor shower. She loved it!
+
+![San Luis Resevoir](/images/photos/Day1/20170610_132029.jpg)
