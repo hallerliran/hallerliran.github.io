@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Day 20 Cooke City, Montana
+title: Day 19 Cooke City, Montana
 ---
 
 Today we are sleeping in a dry campground called Soda Butte in the Gallatin National Forest just outside of Cooke City, Montana. This campsite allows only hard-sided camping (no tents or pop-ups) because someone in a tent was killed by a grizzly here in 2010. The entrance to the campsite says "Grizzly Bear Area - Special Rules Apply" and then a few meters down there is another sign that says "CAUTION - This campground has known grizzly bear use". So needless to say, we went and finally bought bear spray. 

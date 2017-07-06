@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Day 21 Mammoth Country, Yellowstone
+title: Day 20 Mammoth Country, Yellowstone
 ---
 
 Today we woke up early at the Soda Butte campground outside of Cooke City. No bears. We got ready and headed to Yellowstone. We woke up early so that we could maange to snag a campsite, since we knew they fill up early. We planned to sleep at Tower Campground, which is in Roosevelt Country. Whn we entered the park, the bulletin board said that all campgrounds had space available, so we were optimistic. However, by the time we made it all the way to Tower (30 miles later going at 25mph), the campground was full. We talked to a ranger there who was in the process of buildng another campsite, and he tried to help us find a spot there, but no luck. Actually, in retrospect, it really wasn't an ideal campsite for RVs. Sites were small, cramped, and slanted. 

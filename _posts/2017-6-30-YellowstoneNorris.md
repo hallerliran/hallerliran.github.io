@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Day 22 Norris Country, Yellowstone
+title: Day 21 Norris Country, Yellowstone
 ---
 
 Today we woke up at Mammoth Springs Campground to a beautiful mountain view. We decided to take it easy this morning since we were meeting David and Adi at 11. Raz and Liran decorated and wrote postcards, whileI finally washed three days worth of dishes. Gross. Yesterday, in our brief moment of service on the Beaver Pond hike, we had called Adi and told her to meet us in Canyon Country. But this morning, after looking at the map again, we decided it would make the most sense to meet them at Norris. But, of course, we had no service at the campground. We decided to drive to Gardiner to dump our tanks, buy food, and call Adi to revise the plan.
